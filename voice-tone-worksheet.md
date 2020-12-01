@@ -10,4 +10,8 @@
 
 *Intended readership* - People who are interested in design, development and arts 
 
+**Chapter IV.**
+
+All my life I tried to avoid copying as much as possible. From my experience copying was viewed as something negative: "Do you copy? You're a stealer!"  When I was little copying was called "monkeying" in our Czech elementary school, that meant if you were copying something from somebody else, you were a *copymonkey*, so like a copycat in English, but with monkeys! So your schoolmates would publicly shame you for copying. In our class copying was simply a *taboo*. But what if you liked the stuff you saw your classmate do? I would get jealous easily and try to implement something that I liked from his work into mine to make my work look better. Basically, I tried to copy in a very subtle way so nobody would notice. I would just tweak something in my work to make it look better. But was it really copying? What is the boundary between copying and inspiration? To many, it's a matter of personal opinion, but when somebody is really proud of their work, they get angry if someone copies even just a tiny thing from their work. But maybe we shouldn't see copying in a negative light. After all, seeing somebody being inspired by your work, means that they really like your work. 
+
 
