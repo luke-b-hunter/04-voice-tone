@@ -16,7 +16,7 @@ But copying was always part of our culture and eventually there will be a moment
 
 So yes, copying was always part of our history and it's not something that will go away. Copying enriches our knowledge and helps us evolve and once we copy enough we can get to our own unique style. It can also depend on our intentions. Copying can be done in a harmful way, when other people are exploiting other peoples ideas for their own projects or their own personal gain, but just like inviting someone to our own personal property that was owned by somebody before us and the person before them, we can change our perception on copying as stop seeing it in a bad way, but understand it as *working with previous sources* instead.
 
-***My personal experience***
+***MY PERSONAL EXPERIENCE***
 
 From my personal experience, I always tried to copy as less as possible, but you shouldn't feel ashamed of it. Copying is learning and esentially in the digital age, we're all copying something, whether it's a visual style or a downloaded font. In high school, for one of my posters, I would be inspired by the shapes produced by Bauhaus. True, it wasn't the same picture, but the idea is similar — working with shapes to produce a composition. Esentially, I used Bauhaus works as inspiration. Of course, there are countless other designs inspired by the same source.
 
