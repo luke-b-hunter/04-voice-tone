@@ -22,10 +22,10 @@ From my personal experience, I always tried to copy as less as possible, but you
 
 ![](fig-0-2.png)
 
-
+***from left to right: Joost Schmidt, Poster for the Bauhausaustellung, 1923 / Poster for United Islands of Prague made by me, 2017***
 
 As for another example of direct copying, in one of our workshops, we invited a famous Czech graphic designer Pavel Fuksa to one of our workshops. I really liked Pavel Fuksa's style and tried to copy it myself. His style contains simple geometric style shapes inspired by Czechoslovak design in the 80s. *Ha!* Even the great master Pavel Fuksa himself got inspired from somebody else! So don't be afraid to experiment with other styles and other people's works!
 
 ![](fig-0-1.png)
 
-
+***from left to right: Pavel Fuksa, Series of presidential postage stamps, 2018 / Postage stamp made by me, 2020***
