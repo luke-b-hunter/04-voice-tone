@@ -8,4 +8,5 @@ To many, it's a matter of personal opinion, but when somebody is really proud of
 
 ![](fig-0-0.png.PNG)
 
-*from left to right: Hiroshige, Plum Garden at Kameido, 1857     Vincent Van Gogh, Flowering Plum Tree (after Hiroshige), 1887
+***from left to right: Hiroshige, Plum Garden at Kameido, 1857     
+Vincent Van Gogh, Flowering Plum Tree (after Hiroshige), 1887***
