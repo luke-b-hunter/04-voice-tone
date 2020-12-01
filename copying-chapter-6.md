@@ -15,3 +15,17 @@ So we could go as far and say that without copying, Van Gogh wouldn't be able to
 But copying was always part of our culture and eventually, there will be a moment when we will have to copy somebody else to expand our skills and knowledge. For example, when I was in High School, I would try to learn to do my own original stuff in graphic design, but in some occasions it gets hard and there is no other way, than to get inspired by previous peers.
 
 So yes, copying was always part of our history and it's not something that will go away. Copying enriches our knowledge and helps us evolve and once we copy enough we can get to our own unique style. It can also depends on our intentions. Copying can be done in a harmful way, when other people are exploiting other peoples ideas for their own projects or their own personal gain, but just like inviting someone to our own personal property, that was owned by somebody before us and the person before them, we can change our perception on copying as not seeing it as copying in a bad way, but working with previous sources instead.
+
+***My personal experience***
+
+From my personal experience, I always tried to copy as less as possible, but you shouldn't feel ashamed of it. Copying is learning and esentially in the digital age, we're all copying something, whether it's a visual style or fonts. In high school, for my one of my posters, I would be inspired by the shapes produced by Bauhaus. True, it wasn't the same picture, but the idea is similar — working with shapes to produce an composition. Esentially, I used Bauhaus works as inspiration. Of course, there are countless other designs inspired by the same source.
+
+![](fig-0-2.png)
+
+
+
+As for another example of direct copying, in one of our workshops, we invited a famous Czech graphic designer Pavel Fuksa to one of our workshops. I really liked Pavel Fuksa's style and tried to copy it myself. His style contains simple geometric style shapes inspired by Czechoslovak design in the 80s. *Ha!* Even the great master Pavel Fuksa himself got inspired from somebody else! So don't be afraid to experiment with other styles and other people's works!
+
+![](fig-0-1.png)
+
+
