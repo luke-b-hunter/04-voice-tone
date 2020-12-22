@@ -6,7 +6,7 @@
 
 * To many, it's a matter of personal opinion, but when somebody is proud of their work, they get angry if someone copies even a tiny fragment from their work. But we shouldn't see copying in a negative light. After all, seeing somebody being inspired by your work can mean that they like your idea. When you get older, you learn to acknowledge the masters before you, for example the old masters in painting. Many artists were inspired by their previous peers. Vincent van Gogh liked Baroque Dutch masters and Japanese paintings. Japanese art was seen as something new and fresh in the 19th century and inspired Van Gogh in many ways. He liked to copy works from the Japanese master Hiroshige to further his style. 
 
-![](fig-0-0.png.PNG)
+![](img/fig-0-0.png.PNG)
 
 ***from left to right: Hiroshige, Plum Garden at Kameido, 1857 / Vincent Van Gogh, Flowering Plum Tree (after Hiroshige), 1887***
 
@@ -20,12 +20,12 @@
 
 * From my personal experience, I always tried to copy as less as possible, but you shouldn't feel ashamed of it. Copying is learning and in the digital age, we're all copying something, whether it's a visual style or a downloaded font. In high school, for one of my posters, I would be inspired by the shapes produced by Bauhaus. True, it wasn't the same picture, but the idea is similar — working with shapes to produce a composition. I used Bauhaus works as inspiration. Of course, there are countless other designs inspired by the same source.
 
-![](fig-0-2.png)
+![](img/fig-0-2.png)
 
 ***from left to right: Joost Schmidt, Poster for the Bauhausaustellung, 1923 / Poster for United Islands of Prague made by me, 2017***
 
 * As for another example of direct copying, in one of our workshops, we invited a famous Czech graphic designer Pavel Fuksa to one of our workshops. I iked Pavel Fuksa's style and tried to copy it myself. His style contains simple geometric style shapes inspired by Czechoslovak design in the 80s. However, even the great master Pavel Fuksa himself got inspired from somebody else. So don't be afraid to experiment with other styles and other people's works!
 
-![](fig-0-1.png)
+![](img/fig-0-1.png)
 
 ***from left to right: Pavel Fuksa, Series of presidential postage stamps, 2018 / Postage stamp made by me, 2020***
