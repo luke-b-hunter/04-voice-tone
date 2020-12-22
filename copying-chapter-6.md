@@ -6,7 +6,7 @@
 
 * To many, it's a matter of personal opinion, but when somebody is proud of their work, they get angry if someone copies even a tiny fragment from their work. But we shouldn't see copying in a negative light. After all, seeing somebody being inspired by your work can mean that they like your idea. When you get older, you learn to acknowledge the masters before you, for example the old masters in painting. Many artists were inspired by their previous peers. Vincent van Gogh liked Baroque Dutch masters and Japanese paintings. Japanese art was seen as something new and fresh in the 19th century and inspired Van Gogh in many ways. He liked to copy works from the Japanese master Hiroshige to further his style. 
 
-![](img/fig-0-0.PNG.png)
+![](img/fig-0-0.png.png)
 
 ***from left to right: Hiroshige, Plum Garden at Kameido, 1857 / Vincent Van Gogh, Flowering Plum Tree (after Hiroshige), 1887***
 
